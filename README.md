@@ -1,6 +1,6 @@
 # :sparkles::sparkles:星空入口导航网址传送入口:sparkles::sparkles:
 
-## 这里是**星空入口导航网址**
+## 这里是**星空入口导航网址(唯一官方)**
 
 <br>✨重要提醒✨收藏本页面，避免迷路！<br>
 ❤️ 👉 【最新地址】 ：https://蔑义昷读.8xingkongav.com/漓稽讎嬭/a379-dk3a.html<br>
