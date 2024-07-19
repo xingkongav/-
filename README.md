@@ -7,8 +7,6 @@
 ❤️ 👉 【最新地址】 ：https://蔑义昷读.11xingkongav.com/漓稽讎嬭/ong1-orz3.html<br>
 ❤️ 👉 【最新地址】 ：https://星空入口.10xingkongav.com/漓稽讎嬭/a379-dk3a.html<br>
 ❤️ 👉 【最新地址】 ：https://windows.10xingkongav.com/漓稽讎嬭/a379-dk3a.html<br>
-❤️ 👉 【更多地址】 ：https://发布页.doufuru.cc/记住地址<br>
-❤️ 👉 【更多地址】 ：https://截图保存.doufurufabu.xyz/点我直达没问题<br>
 
 ## 怎么快速找到**星空入口导航**呢？
 <br>星空入口导航官网永久地址发布：https://蔑义昷读.8xingkongav.com/漓稽讎嬭/a379-dk3a.html<br>
